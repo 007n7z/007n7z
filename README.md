@@ -11,7 +11,7 @@ ${\color{#B7AB96}\text{cr: st0rmysgraphicz on tumblr}}$
 </sub>
 </p>
 <p align="center">
-${\color{#8F9B93}\text{we're usually nonverbal, so don't expect replies unless close friends}}$ <br> ${\color{#768280}\text{c*h freely , don't ask ! do not copy and no inspo strictly}}$
+${\color{#8F9B93}\text{we're usually nonverbal, so don't expect replies unless close friends}}$ <br> ${\color{#768280}\text{007n7 kins dni ! do not copy and no inspo strictly}}$
 </p>
 
 <p align="center">
