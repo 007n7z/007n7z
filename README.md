@@ -7,7 +7,7 @@
 </p>
 <p align="center">
 <sub>
-${\color{#B7AB96}\text{ic: st0rmysgraphicz on tumblr}}$
+${\color{#B7AB96}\text{cr: st0rmysgraphicz on tumblr}}$
 </sub>
 </p>
 <p align="center">
