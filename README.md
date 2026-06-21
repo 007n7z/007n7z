@@ -26,4 +26,5 @@ ${\color{#8F9B93}\text{we're usually nonverbal, so don't expect replies unless c
   </a>
 </p>
 <p align="center">
-${\color{#8F9B93}\text{forsaken fandom interact with extreme caution, unless friends. we've had bad experiences.}}$ <br> 
+${\color{#8F9B93}\text{(forsaken fandom interact with extreme caution, unless friends. we've had bad experiences.)}}$ <br>
+<a href="https://youtu.be/Yo0kVXFBQNM?si=wXywHQ68kRQIFPI1">YOUTUBE THIS IS NOT FUN</a>
