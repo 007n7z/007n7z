@@ -25,3 +25,5 @@ ${\color{#8F9B93}\text{we're usually nonverbal, so don't expect replies unless c
     <img src="https://github.com/007n7z/007n7z/blob/a69ee0166253125d65d2ea5c8d69f6058611ec73/rentrybjjj.webp" width="200"/>
   </a>
 </p>
+<p align="center">
+${\color{#8F9B93}\text{forsaken fandom interact with extreme caution, unless friends. we've had bad experiences.}}$ <br> 
