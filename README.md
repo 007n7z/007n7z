@@ -3,6 +3,10 @@
 </p>
 
 <p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=32&height=60&pause=100&color=808784&center=true&vCenter=true&width=600&lines=nana%E3%85%A4nana%E3%85%A4oh%E3%85%A4yeah;yo%E3%85%A4yop%E3%85%A4:)" />
+</p>
+
+<p align="center">
 <img src="https://github.com/007n7z/007n7z/blob/502a5c5ab91ba7477fb897d4364083c8a920064f/sevdivider.webp" width="400" />
 </p>
 <p align="center">
